@@ -1,0 +1,6 @@
+- 👋 SIEMA, jestem @xSmola
+- 👀 TOTALNIE NIE LUBIĘ GITA
+- 🌱 Korzystam z niego tylko dlatego że nauczyciel kazał
+- 💞️ Imo git jest beznadziejny
+- 📫 Nic nie zmieni mojego zdania chyba, że git się zmieni na lepsze
+- Z FARTEM MORDO
